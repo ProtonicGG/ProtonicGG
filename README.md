@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ProtonicGG
+- 👀 I’m interested in making websites for school
+- 🌱 I’m currently learning how to use JSON
+- 💞️ I’m looking to collaborate on making a proxy with anyone
+- 📫 How to reach me (NOT AVALIBLE)
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I started coding when I was 5 years old!
